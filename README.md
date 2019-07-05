@@ -1,0 +1,2 @@
+# KUOTA
+by namadisamarkan
